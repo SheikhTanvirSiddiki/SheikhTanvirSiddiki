@@ -3,7 +3,7 @@
 - 👀 I’m interested in Ai, Machine Learning, Cyber Security and Robotics, and learning new technologies.
 - 🌱 I’m currently learning Ai and Machine Learning to enhance my design skills.
 - 💞️ I’m looking to collaborate on educational websites, online learning platforms, and custom web tools.
-- 📫 How to reach me: [sheikhtanvirsiddiki@gmail.com](mailto:sheikhtanvirsiddiki55@gmail.com)
+- 📫 How to reach me: [sheikhtanvirsiddiki55@gmail.com](mailto:sheikhtanvirsiddiki55@gmail.com)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I’m a 12-year-old student who is passionate about building professional websites and exploring innovative designs.
 
